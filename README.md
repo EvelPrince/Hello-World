@@ -1,2 +1,2 @@
 # Hello-World
-I'm not quite sure what this is.
+My request for the student pack has been sent in.
